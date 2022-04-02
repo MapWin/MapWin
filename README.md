@@ -2,7 +2,7 @@
 - 👀 I’m gay
 - 🌱 Yes, I’m gay
 - 💞️ And maybe some funny :/ idk cuz im gay
-- My telegram @secondmapWin . maybe anyone need it. lmao
+- My telegram @MapWin . maybe anyone need it. lmao
 
 <!---
 MapWin/MapWin is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
